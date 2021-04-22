@@ -2,7 +2,7 @@
 
 ## Contact Info
 Phone: +375292134365 <br>
-E-mail: maksim.maksimchyk@yandex.ru
+E-mail: maksim.maksimchyk@yandex.ru <br>
 Discord: Maksimchyk#5438
 
 ## Summary
